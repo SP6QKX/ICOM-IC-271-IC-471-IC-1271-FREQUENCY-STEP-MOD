@@ -4,7 +4,8 @@
              ICOM IC-271 / IC-471 / IC-1271  
  
 
-Vy73 - De Daniel SP6QKX 
+Vy73 
+Daniel SP6QKX 
 30.08.2019 Poland .
 
 
