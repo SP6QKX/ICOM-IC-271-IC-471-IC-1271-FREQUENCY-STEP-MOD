@@ -23,3 +23,7 @@ Thanks and Greetings
 
 
 <img src="https://raw.githubusercontent.com/SP6QKX/ICOM-IC-271-IC-471-IC-1271-FREQUENCY-STEP-MOD/master/IC271_IC471_IC1271_STEP_MOD.JPG">
+
+
+https://a.aliexpress.com/_mO63Ru1 - Przy użyciu tego linka otrzymasz około 93zł rabatu na zakupy w Sklepie Aliexpress .
+https://a.aliexpress.com/_mO63Ru1 - using this link at register You get $24 discount on your purchases in Aliexpress shop .
