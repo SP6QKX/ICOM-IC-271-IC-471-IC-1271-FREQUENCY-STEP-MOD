@@ -15,8 +15,6 @@ https://qrz.com/DB/SP6QKX
 
 https://www.facebook.com/sp6qkx
 
-If you would like donate to support my projects and development
-https://www.paypal.com/pools/c/8cTo5eOF8T
 
 vy73 Daniel SP6QKX
 Thanks and Greetings
