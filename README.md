@@ -8,7 +8,6 @@ Vy73
 Daniel SP6QKX 
 30.08.2019 Poland .
 
-
 More information on email  s p 6 q k x @ p o c z t a . f m
 
 https://qrz.com/DB/SP6QKX
